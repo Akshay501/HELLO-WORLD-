@@ -16,7 +16,9 @@ I deadlift **140kg**.
 
 I bench **80kg**.
 
+======
 
+I practice at **L.B .STADIUM** 
 
 
 
